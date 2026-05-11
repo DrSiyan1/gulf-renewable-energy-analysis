@@ -195,7 +195,7 @@ fiscal policy, natural resource economics
 
 ## Contact
 
-- **GitHub:** [github.com/YOUR_USERNAME](https://github.com/YOUR_USERNAME)
+- **GitHub:** [github.com/YOUR_USERNAME](https://github.com/DrSyan1)
 - **LinkedIn:** [linkedin.com/in/adedamola-siyanbola](https://www.linkedin.com/in/adedamola-siyanbola-5458b472)
 
 ---
